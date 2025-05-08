@@ -1,4 +1,4 @@
-how's it goin everyone! im a student and certified information lover. interested in foss projects and digital privacy...yep, that particular kind of nerd :) 
+how's it goin everyone, im a student and certified nerd. interested in foss projects and digital privacy. 
 feel free to email me day or night, ewonsowicz@protonmail.com
 
 <!---
